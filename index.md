@@ -1,1 +1,1 @@
-Hi, I'm Glory, It Specialist and Software Engineer
+Hi, I'm Glory, Information Technology Specialist and Software Engineer
